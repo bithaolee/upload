@@ -1,0 +1,1 @@
+tommorow is friday
